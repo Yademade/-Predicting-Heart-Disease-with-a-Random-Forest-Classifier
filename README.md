@@ -1,9 +1,15 @@
 GROUP ONE
-1. Meron Bimrew………………………………….1339
+
+1.Meron Bimrew………………………………….1339
+   
 2.Amanuel Ewnetu………………………………..1077
+
 3.Yabsera Amsalu…………………………………0833
+
 4.Metmku Yohannes………………………………1479
+
 5.Meron Tadesse…………………………………..1519
+
 6.Edlam Wondesen………………………………...1465
 
 
